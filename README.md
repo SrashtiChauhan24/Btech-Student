@@ -1,3 +1,3 @@
 # Btech-Student
 <br>
-Author - Srashti Chauhan
+Author - Srashti (College Student)
